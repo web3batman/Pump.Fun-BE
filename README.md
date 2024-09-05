@@ -17,3 +17,4 @@ Tools for pump.fun and lists of Meme
   <img src="https://cdn.jsdelivr.net/gh/evolify/files/img/202404231034289.PNG" alt="dark" width="49%">
 </div>
 
+- Always welcome to passionative investors. https://t.me/shinnyleo0912
