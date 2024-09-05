@@ -19,5 +19,5 @@ Tools for pump.fun and lists of Meme
 
 
 
-
+## Conclusion
 - Always welcome to passionative investors. https://t.me/shinnyleo0912
